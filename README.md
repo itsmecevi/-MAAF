@@ -2,10 +2,10 @@
 
 Maaf, 
 
-aku tidak bisa menulis banyak,
+aku tidak bisa menulis banyak hari ini,
 
 tintaku habis,
 
-semalam kugores langit
+karena semalam kugores langit dengan namamu…
 
-dengan namamu…
+by: itsmecevi.github.io
